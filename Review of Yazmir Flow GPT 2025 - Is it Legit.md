@@ -2,7 +2,7 @@
 
 Have you ever wondered how to trade cryptocurrencies more efficiently without sitting in front of your screen all day? You are not alone. With the growing interest in cryptocurrencies and automated trading platforms, [Yazmir Flow GPT](https://yazmirflowgpt.com) is gaining popularity among traders. The promise of leaving complex decisions to an intelligent algorithm is undoubtedly enticing. In this report, I will share my impressions of Yazmir Flow GPT by exploring its features, benefits, and whether it is truly worth your time and money. Let’s dive into the topic!
 
-🔥 [Open your account now with Yazmir Flow GPT](https://yazmirflowgpt.com/signup)
+🔥 [Open your account now with Yazmir Flow GPT](https://yazmirflowgpt.com/)
 
 ## Summary
 
